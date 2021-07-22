@@ -1,7 +1,7 @@
 # Sahasra
 ⦿ Hi All, this is Sahasra.R , and Im doing so fur so good!
 
-⦿ My 𝓵𝓸𝓿𝓮 for my racket is BOUNDLESS, my 𝘱𝘢𝘴𝘴𝘪𝘰𝘯 for badminton is HAPPINESS
+⦿⚡⚡ My 𝓵𝓸𝓿𝓮 for my racket is BOUNDLESS, my 𝘱𝘢𝘴𝘴𝘪𝘰𝘯 for badminton is HAPPINESS ⚡⚡
 
 ⦿ I love to read, explore new things,draw,skate, and most importantly, play sports!
 
@@ -17,6 +17,6 @@
 
 ⦿ I have drawn insipiration from , Tai Tzu Ying, Akene Yamaguchi , Stephanos Tsitsipas, Lee Chong Wei. I will always worship Novac Djokovic and PV Sindhu as my gods.Bcuz although I love Badminton, Im  huge fan of Tennis, Football too!
 
-⦿ The question isn’t who is going to let me; it’s who is going to stop me.
+⦿ The question isn’t who is going to let me; it’s who is going to stop me. ❄⌥❄ YOU HAVE OPTIONS!
 
 ![image](https://user-images.githubusercontent.com/73017579/126597216-f5d849f4-e497-45ef-a189-d51811edb78b.png)
