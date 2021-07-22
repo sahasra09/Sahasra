@@ -20,3 +20,5 @@
 ⦿ The question isn’t who is going to let me; it’s who is going to stop me. ❄⌥❄ YOU HAVE OPTIONS!
 
 ![image](https://user-images.githubusercontent.com/73017579/126597216-f5d849f4-e497-45ef-a189-d51811edb78b.png)
+
+                                                BYE BYE!
