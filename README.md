@@ -1,4 +1,4 @@
-# You are born and alive , what can be a greater proof of your uniueness. You  can be everything,anything and all the things everyone has or never been. Believe in YOUSELF, work hard , die for what you want , dont cry, keep trying, till you reach the top of the mountain.. BE PATIENT
+# You are born and alive , what can be a greater proof of your uniueness. You  can be everything,anything and all the things everyone has or never been. Believe in YOURSELF, failure is not bad , you can never like a dish without tasting it.. work hard , die for what you want , dont cry, keep trying, till you reach the top of the mountain.. BE PATIENT
 ⦿ Hi All, this is Sahasra.R , and Im doing so fur so good!
 
 ⦿⚡⚡ My 𝓵𝓸𝓿𝓮 for my racket is BOUNDLESS, my 𝘱𝘢𝘴𝘴𝘪𝘰𝘯 for badminton is HAPPINESS ⚡⚡
